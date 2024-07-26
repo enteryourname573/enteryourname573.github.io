@@ -1,0 +1,7 @@
+- [https://enteryourname573.github.io](https://enteryourname573.github.io)
+- [https://medium.com/@GiuseppaNapolitano](https://medium.com/@GiuseppaNapolitano)
+- [https://www.quora.com/profile/Giuseppa-Napolitano-1](https://www.quora.com/profile/Giuseppa-Napolitano-1)
+- [https://yo.fan/giuseppanapolit](https://yo.fan/giuseppanapolit)
+- [https://x.com/GiuseppaNapo](https://x.com/GiuseppaNapo)
+- [https://www.youtube.com/channel/UCbv_JskOCu16C8s-z5f1pUw](https://www.youtube.com/channel/UCbv_JskOCu16C8s-z5f1pUw)
+- [https://www.reddit.com/user/Temporary-Heat-3223/](https://www.reddit.com/user/Temporary-Heat-3223/)
