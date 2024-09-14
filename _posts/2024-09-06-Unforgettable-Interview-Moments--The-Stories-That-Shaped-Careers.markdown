@@ -1,8 +1,8 @@
 ---
 layout: post
 title: "Unforgettable Interview Moments: The Stories That Shaped Careers"
-date:   2024-09-05 06:07:25 +0000
-categories: Business
+date:   2024-09-06 06:07:25 +0000
+categories: ['News','Sci-Tech']
 excerpt_image: https://uproxx.com/wp-content/uploads/2016/03/running-from-building.jpg
 ---
 
