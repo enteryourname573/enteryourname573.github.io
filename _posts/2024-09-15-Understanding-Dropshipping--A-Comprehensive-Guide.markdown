@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Understanding Dropshipping: A Comprehensive Guide"
-date:   2024-09-15 13:46:18 +0000
+date:   2024-09-05 13:46:18 +0000
 categories: Gaming
 excerpt_image: https://onlinemarketplace.com.ng/wp-content/uploads/2024/02/IMG-20240213-WA0016-1024x576.jpg
 ---
